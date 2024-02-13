@@ -19,7 +19,7 @@ In addition to providing professional services, OchukoFX is actively seeking new
 
 ## Get in Touch
 
-Whether you're interested in availing of our services or have job opportunities to offer, we'd love to hear from you! Feel free to reach out to us through the contact information provided on our website.
+Whether you're interested in availing of our services or have job opportunities to offer, we'd love to hear from you! Feel free to reach out to us through the contact information provided on our website. https://augustineochuko1.github.io/OchukoFX-Tech-Hub/
 
 Thank you for visiting OchukoFX Tech Hub!
 
